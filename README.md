@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi dear👋, I'm Thomas Santos
 
 
 - 🔭 I'm looking for a job as a developer
